@@ -1,0 +1,1 @@
+# C-Users-delia-Desktop-Aplica-ii-software-pentru-terminalul-mobil
